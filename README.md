@@ -1,1 +1,1 @@
-# Taxa-de-mortes-por-tuberculolse-em-alguns-paises-no-ano-de-2007
+# Taxa-de-mortes-por-tuberculolse-em-alguns-países no ano de 2007
